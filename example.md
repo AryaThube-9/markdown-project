@@ -1,1 +1,0 @@
-# Sweet Delight Cake Shop
